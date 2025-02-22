@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-Lily Cordina (she/her)
+Lily Cordina  (she/her)
